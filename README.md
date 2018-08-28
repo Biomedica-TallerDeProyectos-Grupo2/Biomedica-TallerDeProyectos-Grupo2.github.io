@@ -1,1 +1,1 @@
-# Biomedica-TallerDeProyectos-Grupo2.github.io
+# Biomedica-TallerDeProyectos-Grupo7.github.io
